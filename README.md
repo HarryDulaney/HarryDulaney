@@ -1,6 +1,5 @@
-## Hi There! 👋
-### _Thanks for visiting my little corner of the world._ 
+## 👋 Hi There! I'm Harry and this is my dog, Milo! 
+### _Thanks for visiting our little corner of the 📣!_ 
 ## If you see a project that sparks your interest please feel free to [Contact Me](https://www.harrydulaney.com/#contact). I am always looking to collaborate!
-
 
 
